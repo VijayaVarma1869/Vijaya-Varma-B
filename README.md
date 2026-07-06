@@ -1,2 +1,5 @@
 # Vijaya-Varma-B
-My Personal Repository
+# About Me 😁
+Sports Enthusiast. 😍   
+Book Reader. 😪   
+Share Market Investor. 😳
